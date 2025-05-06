@@ -13,7 +13,7 @@
 
 ## 📝 Certificate
 
-- [OctaNet Certificate](https://drive.google.com/file/d/1ug_FPd1cgIIU4KqpCds4u_eR4XEERBBm/view?usp=sharing)  
+- [OctaNet Certificate](https://drive.google.com/file/d/1deLrdj5doaCWqOG-uFjULOpT3jtODMI2/view?usp=sharing)  
 
 ---
 
